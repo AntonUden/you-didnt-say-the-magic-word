@@ -1,2 +1,2 @@
-# you-didnt-say-the-magic-word
-you didnt say the magic word from jurassic park
+# you-didn't-say-the-magic-word
+you didn't say the magic word from jurassic park
